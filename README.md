@@ -1,1 +1,1 @@
-# blum1
+[Telegram Blum](https://t.me/blum/app?startapp=ref_6azdLeYwow)
